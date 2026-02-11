@@ -1,6 +1,0 @@
-- ideia ter uma ideia reflexiva sobre o curso
-- pensar no impacto da IA no curso de ciências de computação
-- problemas de privacidade
-- crise de metais
-- talvez uma area legal seja biotecnologia?
-- 

@@ -1,1 +1,0 @@
-Analisando/pesquisando mais um pouco: Na língua portuguesa, _os termos que complementam o sentido dos termos essenciais da oração são chamados de termos integrantes_. Os termos integrantes são necessários para que o verbo ou substantivo tenha um sentido completo.
